@@ -1,4 +1,4 @@
-Virtual Learning Pusdiklat KemnakerPusat Pendidikan Dan Pelatihan Pegawai Kementerian Ketenagakerjaan RI
+Virtual Learning Pusat Pendidikan Dan Pelatihan Pegawai Kementerian Ketenagakerjaan RI.
 
 
 
